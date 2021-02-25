@@ -2,6 +2,6 @@
 
 Hello,
 You can kindly tip via:
-`kipronokem@gmail.com`
+`kipronokemei98@gmail.com`
 
 Thank you
