@@ -1,4 +1,4 @@
-# Pay-PaL-address
+# zoom meeting-address
 
 Hello,
 You can kindly tip via:
